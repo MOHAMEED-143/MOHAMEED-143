@@ -7,12 +7,12 @@
 </h3>
 
 <center>
-<img src="https://user-images.githubusercontent.com/79738922/215358334-f326af7b-5a43-4a05-a693-0dc9c6d4398b.gif" width="100" height="180" align="right">
+<img src="https://github.com/MOHAMEED-143/MOHAMEED-143/blob/main/%D8%AA%D9%86%D8%B2%D9%8A%D9%84.jpeg" width="100" height="180" align="right">
 <center>
  
 <a href="https://Instagram.com/r0ee.q" target="_blank"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/instagram.png" alt="alt text" width="81" height="81"></a> 
 <a href="https://t.me/r0ee.qq"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/telegram.png" alt="alt text" width="81" height="81"></a>
-<a href="https://www.facebook.com/midoood" target="_blank"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/facebook.png" alt="alt text" width="81" height="81"></a> <a href="https://youtube.com/@MAHADI-143"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/youtube.png" alt="alt text" width="81" height="81"></a> 
+<a href="https://www.facebook.com/midoood" target="_blank"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/facebook.png" alt="alt text" width="81" height="81"></a> <a href="https://youtube.com/@MIDOX"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/youtube.png" alt="alt text" width="81" height="81"></a> 
  
 __𝗣𝗿𝗼𝗴𝗿𝗮𝗺𝗺𝗶𝗻𝗴__🩵🩷💖💙💜🖤🩶
  
