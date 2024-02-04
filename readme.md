@@ -11,8 +11,8 @@
 <center>
  
 <a href="https://Instagram.com/r0ee.q" target="_blank"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/instagram.png" alt="alt text" width="81" height="81"></a> 
-<a href="https://t.me/r0ee.qq"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/telegram.png" alt="alt text" width="81" height="81"></a>
-<a href="https://www.facebook.com/midoood" target="_blank"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/facebook.png" alt="alt text" width="81" height="81"></a> <a href="https://youtube.com/@MIDOX"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/youtube.png" alt="alt text" width="81" height="81"></a> 
+<a href="https://t.me/r0e_q"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/telegram.png" alt="alt text" width="81" height="81"></a>
+<a href="https://www.facebook.com/mohamed.el.amine" target="_blank"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/facebook.png" alt="alt text" width="81" height="81"></a> <a href="https://youtube.com/@MIDOX"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/youtube.png" alt="alt text" width="81" height="81"></a> 
  
 __𝗣𝗿𝗼𝗴𝗿𝗮𝗺𝗺𝗶𝗻𝗴__🩵🩷💖💙💜🖤🩶
  
