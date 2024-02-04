@@ -10,9 +10,9 @@
 <img src="https://github.com/MOHAMEED-143/MOHAMEED-143/blob/main/%D8%AA%D9%86%D8%B2%D9%8A%D9%84.jpeg" width="100" height="180" align="right">
 <center>
  
-<a href="https://Instagram.com/r0ee.q" target="_blank"><img src="https://github.com/MOHAMEED-143/MOHAMEED-143/blob/main/Image/instagram.png" alt="alt text" width="81" height="81"></a> 
-<a href="https://t.me/r0ee.qq"><img src="https://github.com/MOHAMEED-143/MOHAMEED-143/blob/main/Image/telegram.png" alt="alt text" width="81" height="81"></a>
-<a href="https://www.facebook.com/midoood" target="_blank"><img src="https://github.com/MOHAMEED-143/MOHAMEED-143/blob/main/Image/facebook.png" alt="alt text" width="81" height="81"></a> <a href="https://youtube.com/@MIDOX"><img src="https://github.com/MOHAMEED-143/MOHAMEED-143/blob/main/Image/youtube.png" alt="alt text" width="81" height="81"></a> 
+<a href="https://Instagram.com/r0ee.q" target="_blank"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/instagram.png" alt="alt text" width="81" height="81"></a> 
+<a href="https://t.me/r0ee.qq"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/telegram.png" alt="alt text" width="81" height="81"></a>
+<a href="https://www.facebook.com/midoood" target="_blank"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/facebook.png" alt="alt text" width="81" height="81"></a> <a href="https://youtube.com/@MIDOX"><img src="https://github.com/MAHADI-143/MAHADI-143/blob/main/Image/youtube.png" alt="alt text" width="81" height="81"></a> 
  
 __𝗣𝗿𝗼𝗴𝗿𝗮𝗺𝗺𝗶𝗻𝗴__🩵🩷💖💙💜🖤🩶
  
@@ -22,7 +22,7 @@ __𝗣𝗿𝗼𝗴𝗿𝗮𝗺𝗺𝗶𝗻𝗴__🩵🩷💖💙💜🖤🩶
 </p>
 <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2MOHAMED-YOUR-PAPA%2Fgithub-MOHAMEED-143&label=MOHAMED%20GITHUB%20VISITOR&labelColor=%23697689&countColor=%23dce775&labelStyle=upper" width="350" height="35"></a>
 <center>
-<a href="https://github.com/MOHAMEED-143"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=MOHAMEED-143&theme=monokai"></a>
+<a href="https://github.com/MAHADI-143"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=MA-143&theme=monokai"></a>
 
 <h2> <img width="25" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/icons/icon-stats.png" /><i> GitHub Stats :</i></h2>
 
